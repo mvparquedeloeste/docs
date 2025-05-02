@@ -234,6 +234,18 @@ Todo vale con tal incriminar y criminalizar a las vecinas de los males que se da
 
 - [(Cadena SER) Vecinos del Parque del Oeste llaman a la Policía por el peligro del material 'abandonado' tras el festival de luces](https://cadenaser.com/andalucia/2025/02/26/vecinos-del-parque-del-oeste-llaman-a-la-policia-por-el-peligro-del-material-abandonado-tras-el-festival-de-luces-ser-malaga/)
 
+### 27 de febrero
+
+- [(Telecinco) La lucha vecinal en defensa del Parque del Oeste en Málaga: "Se ha cometido una salvajada"](https://www.telecinco.es/noticias/andalucia/20250227/lucha-vecinal-defensa-parque-oeste-malaga_18_014864645.html)
+
+### 2 de marzo
+
+- [(Málaga Hoy) El resurgir de la lucha vecinal en Málaga: desde frenar el Festival de las Linternas a rechazar la torre del puerto](https://www.malagahoy.es/malaga/lucha-vecinal-malaga_0_2003365622.html)
+
+### 4 de marzo
+
+- [(Málaga Hoy) Los vecinos del Parque del Oeste 'aplauden' la retirada de las vallas](https://www.malagahoy.es/videos/video-vecinos-parque-oeste-retirada-vallas_8_2003457930.html)
+
 ## Entrega de firmas
 
 Realizada el 24 de febrero de 2025
@@ -243,3 +255,9 @@ Realizada el 24 de febrero de 2025
 - [(Dani Pérez) “Este modelo de que todo está en venta tiene que cambiar”](https://daniperez.es/perez-sobre-las-politicas-de-de-la-torre-este-modelo-de-que-todo-esta-en-venta-tiene-que-cambiar/)
 - [(Andalucía Información) Los vecinos pendientes del estado del Parque del Oeste tras el Festival de las Linternas](https://andaluciainformacion.es/torremolinos/1869235/los-vecinos-pendientes-del-estado-del-parque-del-oeste-tras-el-festival-de-las-linternas/)
 - [(La opinión de Málaga) Entregan más de 5.000 firmas contra «la privatización» del Parque del Oeste](https://www.laopiniondemalaga.es/malaga/2025/02/25/entregan-firmas-privatizacion-parque-oeste-114647941.html)
+
+## Recuperando el Parque
+
+- [(Cadena SER) Los vecinos del Parque del Oeste de Málaga recuperan su zona verde tras cinco meses de lucha por una 'okupación' privada](https://cadenaser.com/andalucia/2025/03/15/los-vecinos-del-parque-del-oeste-de-malaga-recuperan-su-zona-verde-tras-cinco-meses-de-lucha-por-una-okupacion-privada-ser-malaga/)
+- [(El Español) "Ya podemos dar de comer a los patos": el Parque del Oeste vuelve a llenarse de vecinos tras el Festival de las Linternas](https://www.elespanol.com/malaga/malaga-ciudad/20250317/podemos-dar-comer-patos-parque-oeste-vuelve-llenarse-vecinos-festival-linternas/931656957_0.html)
+- [(101tv) El Parque vuelve a ser de los vecinos del Oeste](https://www.101tv.es/el-parque-vuelve-a-ser-de-los-vecinos-del-oeste/)
