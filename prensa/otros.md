@@ -1,5 +1,17 @@
 # Más noticias
 
+## 2024
+
+### Crueldad animal en Parque de Huelin
+
+> [!CAUTION]
+> Esta información puede herir tu sensibilidad
+
+- [(Diaro SUR) El Parque de Huelin: ¿un cementerio de aves?
+](https://www.diariosur.es/malaga-capital/parque-huelin-cementerio-aves-20240917000135-nt.html
+) - 18 de septiembre
+
+
 ## 2025
 
 ### Mal estado del Parque del Oeste
@@ -48,3 +60,10 @@ Mejor tarde que nunca, ¿no?
 - [(La Opinión de Málaga) Colectivos llevarán ante la Fiscalía la aparición de aves muertas en parques de Málaga](https://www.laopiniondemalaga.es/malaga/2025/09/05/colectivos-fiscalia-aparicion-aves-huelin-121245615.html) - 4 de septiembre
 - [(AndalucíaInformación) Colectivos de Málaga llevarán a Fiscalía de Medioambiente la aparición de aves muertas](https://www.andaluciainformacion.es/articulo/malaga-medio-ambiente/colectivos-malaga-llevaran-fiscalia-medioambiente-aparicion-aves-muertas/202509042235513134404.html) - 4 de septiembre
 - [(Cadena SER) Colectivos vecinales y ecologistas piden a la Fiscalía que investigue la muerte de aves en el Parque Huelin de Málaga](https://cadenaser.com/andalucia/2025/09/04/colectivos-vecinales-y-ecologistas-piden-a-la-fiscalia-que-investigue-la-muerte-de-aves-en-el-parque-huelin-de-malaga-ser-malaga/) - 4 de septiembre
+- [(Europa Press) El PSOE de Málaga exige transparencia al Ayuntamiento tras el cierre del Parque de Huelin por posible gripe aviar
+](https://www.europapress.es/andalucia/malaga-00356/noticia-psoe-malaga-exige-transparencia-ayuntamiento-cierre-parque-huelin-posible-gripe-aviar-20250904141251.html) - 4 de septiembre
+- [(MálagaHoy) Vecinos alertan de que en el Parque del Oeste de Málaga también hubo aves muertas y que sigue abierto
+](https://www.malagahoy.es/malaga/colectivos-parque-oeste-malaga-aves-muertas-denuncia_0_2004704667.html) - 4 de septiembre
+- [(Málaga al día) Con Málaga responsabiliza a la empresa RAGA por el abandono del lago del Parque de Huelin](https://malagaldia.es/2025/09/04/con-malaga-responsabiliza-a-la-empresa-raga-por-el-abandono-del-lago-del-parque-de-huelin/) - 4 de septiembre
+- [(Cadena SER) Empleados del Parque de Huelin alertan de que presentan síntomas compatibles con la gripe aviar
+](https://cadenaser.com/andalucia/2025/09/05/empleados-del-parque-de-huelin-alertan-de-que-presentan-sintomas-compatibles-con-la-gripe-aviar-ser-malaga/) - 5 de septiembre
