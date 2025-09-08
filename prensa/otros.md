@@ -67,3 +67,5 @@ Mejor tarde que nunca, ¿no?
 - [(Málaga al día) Con Málaga responsabiliza a la empresa RAGA por el abandono del lago del Parque de Huelin](https://malagaldia.es/2025/09/04/con-malaga-responsabiliza-a-la-empresa-raga-por-el-abandono-del-lago-del-parque-de-huelin/) - 4 de septiembre
 - [(Cadena SER) Empleados del Parque de Huelin alertan de que presentan síntomas compatibles con la gripe aviar
 ](https://cadenaser.com/andalucia/2025/09/05/empleados-del-parque-de-huelin-alertan-de-que-presentan-sintomas-compatibles-con-la-gripe-aviar-ser-malaga/) - 5 de septiembre
+- [(Cadena SER) El fiscal de Medio Ambiente lamenta el silencio de las administraciones sobre la muerte de aves en Málaga y reclama explicaciones
+](https://cadenaser.com/andalucia/2025/09/08/el-fiscal-de-medio-ambiente-lamenta-el-silencio-de-las-administraciones-sobre-la-muerte-de-aves-en-malaga-y-reclama-explicaciones-ser-malaga/) - 8 de septiembre
