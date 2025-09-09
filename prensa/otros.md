@@ -52,6 +52,7 @@ Mejor tarde que nunca, ¿no?
 - [(Diario SUR) ¿Gripe aviar en Málaga? Cierran el Parque Huelin tras la muerte de una veintena de aves](https://www.diariosur.es/malaga-capital/gripe-aviar-malaga-cierran-parque-huelin-tras-20250903143442-nt.html) - 3 de septiembre
 - [(La Opinión de Málaga) El Ayuntamiento cierra el Parque de Huelin de Málaga por un posible caso de gripe aviar](https://www.laopiniondemalaga.es/malaga/2025/09/03/ayuntamiento-cierra-parque-huelin-malaga-gripe-aviar-121202538.html) - 3 de septiembre
 - [(Ayuntamiento de Málaga) El Ayuntamiento cierra el Parque de Huelin como medida preventiva tras la aparición de una veintena de aves muertas el pasado fin de semana](https://www.malaga.eu/el-ayuntamiento/notas-de-prensa/detalle-de-la-nota-de-prensa/index.html?id=176413) - 3 de septiembre
+- [(101tv) Científicos trabajan en el Parque de Huelin de Málaga tras las sospechas de gripe aviar](https://www.101tv.es/cientificos-trabajan-parque-huelin-malaga-sospechas-gripe-aviar/) - 9 de septiembre
 
 #### Respuesta en consecuencia del vecindario y colectivos
 
