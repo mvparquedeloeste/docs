@@ -42,6 +42,7 @@
 - [(Europa Press) El Ayuntamiento de Málaga investiga la aparición de una veintena de aves muertas en el parque de Huelin](https://www.europapress.es/andalucia/malaga-00356/noticia-ayuntamiento-malaga-investiga-aparicion-veintenade-aves-muertas-parque-huelin-20250902121949.html) - 2 de septiembre
 - [(101tv) El Ayuntamiento de Málaga investiga la muerte de una veintena de aves en el Parque de Huelin](https://www.101tv.es/el-ayuntamiento-de-malaga-investiga-la-muerte-de-una-veintena-de-aves-en-el-parque-de-huelin/) - 2 de septiembre
 - [(La Opinión de Málaga) El Ayuntamiento de Málaga investigará la aparición de las aves muertas en el Parque de Huelin](https://www.laopiniondemalaga.es/malaga/2025/09/02/ayuntamiento-investigara-aves-muertos-parque-huelin-121153714.html) - 2 de septiembre
+- [(Málaga Hoy) El alcalde de Málaga critica que no haya un protocolo nacional ante posibles casos de gripe aviar](https://www.malagahoy.es/malaga/alcalde-malaga-critica-nacional-protocolo-gripe-aviar_0_2004737322.html) - 10 de septiembre
 
 #### Acciones del Ayuntamiento
 
@@ -70,3 +71,5 @@ Mejor tarde que nunca, ¿no?
 ](https://cadenaser.com/andalucia/2025/09/05/empleados-del-parque-de-huelin-alertan-de-que-presentan-sintomas-compatibles-con-la-gripe-aviar-ser-malaga/) - 5 de septiembre
 - [(Cadena SER) El fiscal de Medio Ambiente lamenta el silencio de las administraciones sobre la muerte de aves en Málaga y reclama explicaciones
 ](https://cadenaser.com/andalucia/2025/09/08/el-fiscal-de-medio-ambiente-lamenta-el-silencio-de-las-administraciones-sobre-la-muerte-de-aves-en-malaga-y-reclama-explicaciones-ser-malaga/) - 8 de septiembre
+- [7TV) 📹 Las luces de la ciudad](https://www.7tvandalucia.es/video/magazine/250910-luces-ciudad-b2-mp4/20250910173645001719.html?s=08) - 10 de septiembre
+- [(Málaga Hoy) Vecinos presentan un escrito al Ayuntamiento de Málaga y la Junta de Andalucía por las aves muertas del Parque de Huelin](https://www.malagahoy.es/malaga/ayuntamiento-malaga-junta-andalucia-aves_0_2004735333.html) - 11 de septiembre
