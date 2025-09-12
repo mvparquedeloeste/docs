@@ -73,3 +73,4 @@ Mejor tarde que nunca, ¿no?
 ](https://cadenaser.com/andalucia/2025/09/08/el-fiscal-de-medio-ambiente-lamenta-el-silencio-de-las-administraciones-sobre-la-muerte-de-aves-en-malaga-y-reclama-explicaciones-ser-malaga/) - 8 de septiembre
 - [7TV) 📹 Las luces de la ciudad](https://www.7tvandalucia.es/video/magazine/250910-luces-ciudad-b2-mp4/20250910173645001719.html?s=08) - 10 de septiembre
 - [(Málaga Hoy) Vecinos presentan un escrito al Ayuntamiento de Málaga y la Junta de Andalucía por las aves muertas del Parque de Huelin](https://www.malagahoy.es/malaga/ayuntamiento-malaga-junta-andalucia-aves_0_2004735333.html) - 11 de septiembre
+- [(El Salto) Colectivos llevan ante la Fiscalía la aparición de aves muertas en parques de Málaga](https://www.elsaltodiario.com/malaga/colectivos-llevan-fiscalia-aparicion-aves-muertas-parques-malaga) - 12 de septiembre
