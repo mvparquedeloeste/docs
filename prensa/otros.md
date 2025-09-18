@@ -7,9 +7,7 @@
 > [!CAUTION]
 > Esta información puede herir tu sensibilidad
 
-- [(Diaro SUR) El Parque de Huelin: ¿un cementerio de aves?
-](https://www.diariosur.es/malaga-capital/parque-huelin-cementerio-aves-20240917000135-nt.html
-) - 18 de septiembre
+- [(Diaro SUR) El Parque de Huelin: ¿un cementerio de aves?](https://www.diariosur.es/malaga-capital/parque-huelin-cementerio-aves-20240917000135-nt.html) - 18 de septiembre
 
 
 ## 2025
@@ -64,13 +62,13 @@ Mejor tarde que nunca, ¿no?
 - [(Cadena SER) Colectivos vecinales y ecologistas piden a la Fiscalía que investigue la muerte de aves en el Parque Huelin de Málaga](https://cadenaser.com/andalucia/2025/09/04/colectivos-vecinales-y-ecologistas-piden-a-la-fiscalia-que-investigue-la-muerte-de-aves-en-el-parque-huelin-de-malaga-ser-malaga/) - 4 de septiembre
 - [(Europa Press) El PSOE de Málaga exige transparencia al Ayuntamiento tras el cierre del Parque de Huelin por posible gripe aviar
 ](https://www.europapress.es/andalucia/malaga-00356/noticia-psoe-malaga-exige-transparencia-ayuntamiento-cierre-parque-huelin-posible-gripe-aviar-20250904141251.html) - 4 de septiembre
-- [(MálagaHoy) Vecinos alertan de que en el Parque del Oeste de Málaga también hubo aves muertas y que sigue abierto
-](https://www.malagahoy.es/malaga/colectivos-parque-oeste-malaga-aves-muertas-denuncia_0_2004704667.html) - 4 de septiembre
+- [(MálagaHoy) Vecinos alertan de que en el Parque del Oeste de Málaga también hubo aves muertas y que sigue abierto](https://www.malagahoy.es/malaga/colectivos-parque-oeste-malaga-aves-muertas-denuncia_0_2004704667.html) - 4 de septiembre
 - [(Málaga al día) Con Málaga responsabiliza a la empresa RAGA por el abandono del lago del Parque de Huelin](https://malagaldia.es/2025/09/04/con-malaga-responsabiliza-a-la-empresa-raga-por-el-abandono-del-lago-del-parque-de-huelin/) - 4 de septiembre
 - [(Cadena SER) Empleados del Parque de Huelin alertan de que presentan síntomas compatibles con la gripe aviar
 ](https://cadenaser.com/andalucia/2025/09/05/empleados-del-parque-de-huelin-alertan-de-que-presentan-sintomas-compatibles-con-la-gripe-aviar-ser-malaga/) - 5 de septiembre
 - [(Cadena SER) El fiscal de Medio Ambiente lamenta el silencio de las administraciones sobre la muerte de aves en Málaga y reclama explicaciones
 ](https://cadenaser.com/andalucia/2025/09/08/el-fiscal-de-medio-ambiente-lamenta-el-silencio-de-las-administraciones-sobre-la-muerte-de-aves-en-malaga-y-reclama-explicaciones-ser-malaga/) - 8 de septiembre
-- [7TV) 📹 Las luces de la ciudad](https://www.7tvandalucia.es/video/magazine/250910-luces-ciudad-b2-mp4/20250910173645001719.html?s=08) - 10 de septiembre
+- [(7TV) 📹 Las luces de la ciudad](https://www.7tvandalucia.es/video/magazine/250910-luces-ciudad-b2-mp4/20250910173645001719.html?s=08) - 10 de septiembre
 - [(Málaga Hoy) Vecinos presentan un escrito al Ayuntamiento de Málaga y la Junta de Andalucía por las aves muertas del Parque de Huelin](https://www.malagahoy.es/malaga/ayuntamiento-malaga-junta-andalucia-aves_0_2004735333.html) - 11 de septiembre
 - [(El Salto) Colectivos llevan ante la Fiscalía la aparición de aves muertas en parques de Málaga](https://www.elsaltodiario.com/malaga/colectivos-llevan-fiscalia-aparicion-aves-muertas-parques-malaga) - 12 de septiembre
+- [(El Plural) Asociaciones vecinales y ecologistas exigen explicaciones al Ayuntamiento de Málaga por la muerte de cientos de aves en los parques](https://www.elplural.com/autonomias/andalucia/asociaciones-vecinales-ecologistas-exigen-explicaciones-ayuntamiento-malaga-muerte-cientos-aves-parques_359995102) - 14 de septiembre
