@@ -31,6 +31,7 @@ Cambios por sector.
 - Creación de módulos de interacción social (biblioteca, lactancia, juegos, huertos urbanos, etc.).
 - Instalación de mesas y sillas para uso familiar.
 - Construcción de un carril bici elevado (3,5 m) sobre la muralla ajardinada.
+- ¿Parques caninos? Sin mención alguna ni visualización en el mapa, ¿se pierden o se mantienen? ❌
 
 ### Sector C (Zona sur del puente de calle Luis Barahona de Soto)
 
@@ -47,4 +48,5 @@ Cambios por sector.
 - Construcción de un nuevo puente hacia calle Diamantino García Acosta.
 - Diseño de gradas junto al lago, orientadas a poniente.
 - Espacios de interacción social.
-- Cafetería.
+- Cafetería, ¿un negocio dentro de un parque público? ❌
+
