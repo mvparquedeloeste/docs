@@ -5,6 +5,16 @@ Enlaces varios:
 - [Anuncio de reforma integral del Parque del Oeste en DiarioSUR, octubre 2025](https://www.diariosur.es/malaga-capital/reforma-integral-parque-oeste-malaga-20250925001047-nt.html)
 - [Proyecto de reforma, de Eduardo Rojas Arquitectura](https://eduardorojasarquitectura.com/proyectos/parque-del-oeste-3o-reforma-2024/)
 
+# Tu voz cuenta
+
+[Campaña en change.org](https://www.change.org/p/el-parque-del-oeste-no-se-toca-sin-los-vecinos-as-cfea502a-bd8a-4b40-9b85-85a337a0a19e)
+
+# Apariciones en prensa
+
+## 3 de abril de 2026
+
+- [Vecinos recogen firmas para poder decidir sobre la reforma del Parque del Oeste (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/03/vecinos-recogen-firmas-decidir-reforma-128694381.html) 
+
 ## Cambios que se quieren implementar
 
 Plano del Parque dividido en sectores.
