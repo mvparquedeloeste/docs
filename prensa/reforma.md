@@ -1,27 +1,36 @@
 # Reforma integral del Parque del Oeste
 
-Enlaces varios:
-
-- [Anuncio de reforma integral del Parque del Oeste en DiarioSUR, octubre 2025](https://www.diariosur.es/malaga-capital/reforma-integral-parque-oeste-malaga-20250925001047-nt.html)
-- [Proyecto de reforma, de Eduardo Rojas Arquitectura](https://eduardorojasarquitectura.com/proyectos/parque-del-oeste-3o-reforma-2024/)
-
-# Tu voz cuenta
+## Tu voz cuenta
 
 [Campaña en change.org](https://www.change.org/p/el-parque-del-oeste-no-se-toca-sin-los-vecinos-as-cfea502a-bd8a-4b40-9b85-85a337a0a19e)
 
-# Apariciones en prensa
+## Apariciones en prensa
 
-## 3 de abril de 2026
+Anuncios de la reforma
+
+- [Cambios en el Parque del Oeste de Málaga: así es la remodelación que planea el Ayuntamiento, agosto 2025](https://www.diariosur.es/malaga-capital/cambios-parque-oeste-malaga-remodelacion-planea-ayuntamiento-20250808124621-nt_amp.html)
+- [Anuncio de reforma integral del Parque del Oeste en DiarioSUR, octubre 2025](https://www.diariosur.es/malaga-capital/reforma-integral-parque-oeste-malaga-20250925001047-nt.html)
+- [Proyecto de reforma, de Eduardo Rojas Arquitectura](https://eduardorojasarquitectura.com/proyectos/parque-del-oeste-3o-reforma-2024/)
+
+
+### 3 de abril de 2026
 
 - [Vecinos recogen firmas para poder decidir sobre la reforma del Parque del Oeste (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/03/vecinos-recogen-firmas-decidir-reforma-128694381.html) 
+
+### 6 de abril de 2026
+
+- [El Ayuntamiento niega que vaya a hacer reformas en el Parque del Oeste (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/06/ayuntamiento-niega-reformas-parque-oeste-128794444.html) 
+- [El Ayuntamiento de Málaga **renuncia** a la reforma integral del Parque del Oeste (Diario SUR)](https://www.diariosur.es/malaga-capital/ayuntamiento-malaga-renuncia-reforma-integral-parque-oeste-20260406190429-nt.html) 
+
+### 7 de abril de 2026
+
+- [Los vecinos del Parque del Oeste mantendrán la concentración del protesta de este sábado (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/07/vecinos-parque-oeste-mantendran-concentracion-128811146.html) 
 
 ## Cambios que se quieren implementar
 
 Plano del Parque dividido en sectores.
 
 ![](https://cdn-images-1.medium.com/v2/resize:fit:900/1*UuoPiKGoXtJkCTqLP1VEuQ.jpeg)
-
-Cambios por sector.
 
 ### Sector A (Zona norte, junto a calle Realenga de San Luis)
 
