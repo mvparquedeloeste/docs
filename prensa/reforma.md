@@ -24,7 +24,12 @@ Anuncios de la reforma
 
 ### 7 de abril de 2026
 
-- [Los vecinos del Parque del Oeste mantendrán la concentración del protesta de este sábado (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/07/vecinos-parque-oeste-mantendran-concentracion-128811146.html) 
+- [Los vecinos del Parque del Oeste mantendrán la concentración del protesta de este sábado (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/07/vecinos-parque-oeste-mantendran-concentracion-128811146.html)
+- [Los vecinos se rebelan por el futuro del Parque del Oeste y mantienen la protesta del sábado (Cadena SER)](https://cadenaser.com/andalucia/2026/04/07/los-vecinos-se-rebelan-por-el-futuro-del-parque-del-oeste-y-mantienen-la-protesta-del-sabado-ser-malaga/)
+
+### 8 de abril de 2026
+
+- [Vecinos del Parque del Oeste protestan este sábado y el Ayuntamiento recula en la transformación del espacio (diario universitas)](https://diariouniversitas.es/contenido/929/vecinos-del-parque-del-oeste-protestan-este-sabado-y-el-ayuntamiento-recula-en-l)
 
 ## Cambios que se quieren implementar
 
