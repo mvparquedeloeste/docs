@@ -12,7 +12,6 @@ Anuncios de la reforma
 - [Anuncio de reforma integral del Parque del Oeste en DiarioSUR, octubre 2025](https://www.diariosur.es/malaga-capital/reforma-integral-parque-oeste-malaga-20250925001047-nt.html)
 - [Proyecto de reforma, de Eduardo Rojas Arquitectura](https://eduardorojasarquitectura.com/proyectos/parque-del-oeste-3o-reforma-2024/)
 
-
 ### 3 de abril de 2026
 
 - [Vecinos recogen firmas para poder decidir sobre la reforma del Parque del Oeste (La opinión de Málaga)](https://www.laopiniondemalaga.es/malaga/2026/04/03/vecinos-recogen-firmas-decidir-reforma-128694381.html) 
@@ -30,6 +29,15 @@ Anuncios de la reforma
 ### 8 de abril de 2026
 
 - [Vecinos del Parque del Oeste protestan este sábado y el Ayuntamiento recula en la transformación del espacio (diario universitas)](https://diariouniversitas.es/contenido/929/vecinos-del-parque-del-oeste-protestan-este-sabado-y-el-ayuntamiento-recula-en-l)
+
+### 9 de abril de 2026
+
+- [De la Torre, sobre la reforma del Parque del Oeste: «Claro que no se va a hacer» (Diario SUR)](https://www.diariosur.es/malaga-capital/torre-malaga-reforma-parque-oeste-claro-20260409205247-nt.html)
+
+### Concentración del 11 de abril de 2026
+
+- [El Parque del Oeste de Málaga se levanta: vecinos, colectivos y oposición defienden su carácter público (Cadena SER)](https://cadenaser.com/andalucia/2026/04/11/el-parque-del-oeste-de-malaga-se-levanta-vecinos-colectivos-y-oposicion-defienden-su-caracter-publico-ser-malaga/)
+- [Vecinos del Parque del Oeste exigen al Ayuntamiento el archivo definitivo de la reforma (Diario SUR)](https://www.diariosur.es/malaga-capital/vecinos-parque-oeste-exigen-ayuntamiento-archivo-definitivo-20260411142049-nt.html)
 
 ## Cambios que se quieren implementar
 
